@@ -1,0 +1,1 @@
+# Memorandom for Frugalos
